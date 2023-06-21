@@ -13,7 +13,7 @@
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-❤️‍🔥-These rules where created by Proton#5514 for Proton Server, a server to find roblox files and scripts-❤️‍🔥
+❤️‍🔥-These rules where created by Proton#5514-❤️‍🔥
 
 ❤️- Of course respect  the general Discord Community guidelines: https://discord.com/guidelines -❤️
 
