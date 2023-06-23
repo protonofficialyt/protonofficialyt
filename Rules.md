@@ -13,7 +13,7 @@
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-❤️‍🔥-These rules where created by Proton#5514-❤️‍🔥
+❤️‍🔥-These rules where created by justrealproton-❤️‍🔥
 
 ❤️- Of course respect  the general Discord Community guidelines: https://discord.com/guidelines -❤️
 
